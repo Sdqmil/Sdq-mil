@@ -1,2 +1,0 @@
-# Sdq-mil
-Hack
